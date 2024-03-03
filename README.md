@@ -3,7 +3,7 @@
 
 - Studying Computer Science
 
-- Into PSO, PSO2, SSBU, Minecraft, Terraria, Krunker, Pokémon.
+- PSO enthusiast
 
 <!---
 kalutdx/kalutdx is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
